@@ -1,1 +1,1 @@
-# rsschool-cv1
+https://olyaprih.github.io/rsschool-cv1/
